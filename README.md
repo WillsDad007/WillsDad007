@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... Science (Physics and Chemistry), Computer Science, Maths, and Music.
 - 🌱 I’m currently learning ... JavaScript, CSS, HTML
 - 💞️ I’m collaborating on ... CelestialScript
-- 📫 How to reach me ... 
+- 📫 How to reach me ... Find me on YouTube! https://www.youtube.com/channel/UCGnBXN2AFy1aJNE_0JEyfyw
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... I have watched every episode of Young Sheldon at least twice. I can play Trumpet and Drums
 
